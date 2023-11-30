@@ -11,4 +11,5 @@ I'm eager to connect with like-minded individuals who share a passion for sports
 Ways you can reach me:
 
 Email: whrtyler@gmail.com
+
 Instagram: @tylerwang._
